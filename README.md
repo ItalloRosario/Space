@@ -1,2 +1,8 @@
 # Space
 Atividade diamante.
+
+
+Dupla
+
+ITALLO ROSARIO GUEDES PULIAFICO
+KAUE ROGERIO DA SILVA
